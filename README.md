@@ -1,9 +1,9 @@
    <div align="center">
 
 ####
-[Rentry](https://rentry.co/colorfool) [Discord](https://discord.gg/yVSkfNya)
+[𝙍entry](https://rentry.co/colorfool)　　◡◡　　[𝘿iscd](https://discord.gg/yVSkfNya)
 
-<img width="500" height="268" alt="Image" src="https://github.com/user-attachments/assets/32c17773-7be5-493b-8644-00933ab70b73" />
+<img width="500" height="400" alt="Image" src="https://github.com/user-attachments/assets/32c17773-7be5-493b-8644-00933ab70b73" />
 
 ####
 
