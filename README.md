@@ -1,7 +1,9 @@
    <div align="center">
 
-𝘈rtcreds　　;　　ddlrepaytt on 　𝘗int !
+𝘈rtcreds　　;　　ddlrepaytt on 　𝘗int
 ####
+![alt](https://img.shields.io/badge/౨𝜚-1109-pink)
+
 [𝙍entry](https://rentry.co/colorfool)　　◡◡　　[𝘿iscd](https://discord.gg/wmGgdXwg)　　◡◡　　[𝙋rnspage](https://en.pronouns.page/@C0lorfool)　　◡◡　　[新𝘽ook](https://colorfool.atabook.org)
 
 <img width="500" alt="Image" src="https://github.com/user-attachments/assets/32c17773-7be5-493b-8644-00933ab70b73" />
