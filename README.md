@@ -2,7 +2,7 @@
 ####
    <div align="left">
       
-　　　　　　　　[rᵉⁿᵗʳʸ](https://rentry.co/Bloominqton)　　𓈒　　[新ᵇᵒᵒᵏ](https://colorfool.atabook.org)　　　　　　　　　　　　　　　　　‎ᥬᩤ ིྀ꒷◡　　![alt](https://img.shields.io/badge/ʰʸᵃᶜⁱⁿᵗʰ-002-401278)
+　　　　　　　　[rᵉⁿᵗʳʸ](https://rentry.co/Bloominqton)　　𓈒　　[新ᵇᵒᵒᵏ](https://arrwz.atabook.org)　　　　　　　　　　　　　　　　　‎ᥬᩤ ིྀ꒷◡　　![alt](https://img.shields.io/badge/ʰʸᵃᶜⁱⁿᵗʰ-002-401278)
 
    <div align="center">
       
