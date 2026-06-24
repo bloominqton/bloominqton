@@ -1,8 +1,9 @@
 
 ####
    <div align="left">
-      
-　　　　　　　　[rᵉⁿᵗʳʸ](https://rentry.co/Bloominqton)　　𓈒　　[新ᵇᵒᵒᵏ](https://arrwz.atabook.org)　　　　　　　　　　　　　　　　　‎ᥬᩤ ིྀ꒷◡　　![alt](https://img.shields.io/badge/ʰʸᵃᶜⁱⁿᵗʰ-002-401278)
+
+   ᥬᩤ ིྀ꒷◡　　![alt](https://img.shields.io/badge/ʰʸᵃᶜⁱⁿᵗʰ-002-401278)
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　[rᵉⁿᵗʳʸ](https://rentry.co/Bloominqton)　　𓈒　　[新ᵇᵒᵒᵏ](https://arrwz.atabook.org)
 
    <div align="center">
       
@@ -11,4 +12,4 @@
 ###
    <div align="left">
       
-　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　[dⁱˢᶜᵒʳᵈ](https://discord.gg/wmGgdXwg)　　𓈒　　[prnsᵖᵃᵍᵉ](https://en.pronouns.page/@C0lorfool)
+   [dⁱˢᶜᵒʳᵈ](https://discord.gg/wmGgdXwg)　　𓈒　　[prnsᵖᵃᵍᵉ](https://en.pronouns.page/@C0lorfool)
